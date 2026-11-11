@@ -3,3 +3,7 @@ ActorRenderer - ReloadedLabs
 yes this shit is written by ai tf do u expect 
 
 Renderer Used for BlockmanReloaded
+Join BlockmanReloaded : https://discord.gg/HkRPkVQFTT
+
+
+CopyLeft - ReloadedLabs 
